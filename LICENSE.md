@@ -1,4 +1,4 @@
-
+new Script for aura ascension offers the most advanced aura ascension Script, with esp and anti-ban. Perfect for dominating any match.
 
 
 
